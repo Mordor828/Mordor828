@@ -1,5 +1,6 @@
-Currently going on a Front-end bootcamp at Jobloop Kodehode.
-My interest is: technology, workout, hiking, ebikes, comics, fantasy, music and travelling
+𝙲𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚐𝚘𝚒𝚗𝚐 𝚘𝚗 𝚊 𝙵𝚛𝚘𝚗𝚝-𝚎𝚗𝚍 𝚋𝚘𝚘𝚝𝚌𝚊𝚖𝚙 𝚊𝚝 𝙹𝚘𝚋𝚕𝚘𝚘𝚙 𝙺𝚘𝚍𝚎𝚑𝚘𝚍𝚎. 
+𝙼𝚢 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝 𝚒𝚜: 𝚝𝚎𝚌𝚑𝚗𝚘𝚕𝚘𝚐𝚢, 𝚠𝚘𝚛𝚔𝚘𝚞𝚝, 𝚑𝚒𝚔𝚒𝚗𝚐, 𝚎𝚋𝚒𝚔𝚎𝚜, 𝚌𝚘𝚖𝚒𝚌𝚜, 𝚏𝚊𝚗𝚝𝚊𝚜𝚢, 𝚖𝚞𝚜𝚒𝚌 𝚊𝚗𝚍 𝚝𝚛𝚊𝚟𝚎𝚕𝚕𝚒𝚗𝚐.
+
 
 
 
