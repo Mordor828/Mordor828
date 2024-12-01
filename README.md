@@ -8,4 +8,4 @@ My interest is technology, music, fantasy, comics, sci-fi, workout, hiking and t
 
 
 
-![front-end-stack](https://github.com/user-attachments/assets/1af3a657-9fe6-4379-98fd-45daec1a14bb)
+![front-end-stack](https://github.com/user-attachments/assets/42b1486f-448f-4e11-924a-7aeec1a784a5)
