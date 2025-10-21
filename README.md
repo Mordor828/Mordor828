@@ -2,7 +2,7 @@ Currently a student in a bootcamp front-end course at Jobloop Kodehode.
 <br>
 My interest is technology, music, fantasy, comics, sci-fi, workout, hiking and travelling. 
 <br>
-
+<hr>
 
 
 
